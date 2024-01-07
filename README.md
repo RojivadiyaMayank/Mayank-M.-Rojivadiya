@@ -1,2 +1,2 @@
-# Mayank-M.-Rojivadiya
+# Mayank M. Rojivadiya
 My Portfolio
